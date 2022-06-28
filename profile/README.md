@@ -1,0 +1,1 @@
+Mit-lernen, Mit-visionieren, Mit-diskutieren, Mit-gerissenen werden, Mit-machen – die SustaiNable Conference ist eine Mitmach(t)-Konferenz. Und das betonen wir in diesem Jahr besonders. „MitMacht für Nachhaltigkeit!“ ist unser Slogan für 2022. Denn wir sind fest davon überzeugt: Wenn wir uns alle miteinander vernetzen und unsere Energien bündeln, sind wir unendlich machtvoll.
